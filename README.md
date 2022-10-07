@@ -1,5 +1,4 @@
-# Welcome to the CarmelaStudio wiki!
-### la webpage del estudio de arquitectura **Carmela**
+### Bienvenida/o a Estudio de arquitectura **Carmela**
 
 ***
 
